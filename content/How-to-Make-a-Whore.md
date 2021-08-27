@@ -1,5 +1,5 @@
 rough-first-draft_mentalho.md
-Last modified: Fri Aug 27, 2021  10:03PM
+Last modified: Fri Aug 27, 2021  10:32PM
 
 
 # How to Make a Whore
@@ -36,7 +36,7 @@ It was not what I expected.
 
 "You were thinking I was going to ask for a threesome? Certainly if that were going to happen, you would be my first choice. But I don't think Holly would appreciate some kind of _planned_ threesome. It has to happen naturally, if it's going to happen, ya know?"
 
-"I know." See? This is what I mean by his charm. It's like he knows what you are thinking, and how to make the most of it. Meanwhile, I clearly had no idea what he was thinking. "Look, I'm not a prostitute. I'm married! I have two kids. Three if you count the one from my husband's first marriage. You can't just pay me for sexual favors."
+"I know." See? This is what I mean by his charm. It's like he knows what you are thinking, and how to make the most of it. Meanwhile, I clearly had no idea what he was thinking. "Look, I have nothing against sex work. But your pursuing the wrong lady here, if for no other reason than that is a young woman's game. I'm married! I have two kids. Three if you count the one from my husband's first marriage. You can't just pay me for sexual favors."
 
 "What favor? You don't have to do anything _for_ me. Just think of me while you do it for yourself."
 
