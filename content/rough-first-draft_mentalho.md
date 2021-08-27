@@ -1,9 +1,7 @@
 rough-first-draft_mentalho.md
-Last modified: Thu Aug 26, 2021  09:58PM
+Last modified: Fri Aug 27, 2021  07:21PM
 
-# Working Title: Mental Whore
-
-
+# How to Make a Whore
 
 
 "Excuse me you two, it's time for me to spend a moment in the WC." my old friend Holly said, rising from the table with its white tablecloth crumb-covered and splatter-painted with the miniscule remains of the meal we had just enjoyed.
@@ -128,11 +126,119 @@ I lost my ability to stay upright and collapsed next to my husband, every muscle
 
 --------------------
 
-I texted Owen the next day to confirm that I had cum thinking of him again. By coincidence that same day when I opened the envelope that had come with the $100 for the previous day's orgasm, Owen had upped the ante in his note.
+I texted Owen the next day to confirm that I had orgasmed thinking of him again. By coincidence that same day when I opened the envelope that had come with the $100 for the previous day's orgasm, Owen had upped the ante in his note.
 
-_Athena. If you have a soaking wet squirting orgasm while thinking of me, I will pay you $200. It should include penetration._
+_Athena. If you have a soaking wet squirting orgasm while thinking of me, I will pay you $200._
 
 I was feeling weird about what had happened the previous night with my husband. I decided that this little game had probably gone far enough, and I would ignore this new level to the proposition. I burned the little note and dropped it in a sewer grate.
+
+That night I did nothing of a sexual nature. I kissed Mark and went to sleep fairly early with a satisfied conscience. But if I'm being honest with myself, I have to admit that in recent years my libido has been steadily increasing. I find myself horny all the time! I suspect this is what it must be something like what it is like to be an 18 year old boy. I feel some sympathy for those poor kids. How does anyone get anything done when there's sex to be had?
+
+At work the next day I was entirely distracted. Not by any particular thing, just in that way that I really wanted to get fucked, and so anything that reminded me of that drew my attention away from what I was supposed to be working on. I couldn't take my eyes off men in suits that I passed on my walk into the office. And the curve of my coworker's ass in a fine black wool pair of slacks set me back half an hour. Even when my assistant came in and leaned over a bit when she handed me a proof to review --- and I could see the swelling curve down her low-cut dress as if she wanted to tempt me to look there --- even that, though not exactly sexually stimulating for me, left me thinking of how much some dude would like to jizz all over those nice plump tits.
+
+By the time I got home, I was kind of a mess. It felt like the day was missing something, and I realized after dinner that it was not receiving an envelope with money in it from Owen. I had got one every day the preceding week. But I knew I shouldn't have expected one since I had not texted Owen the day before. No work, no pay.
+
+As soon as I got the kids fed and off watching TV or playing video games for the evening, I cornered Mark in our bedroom, and pushed him to sit on the bed. Not even bothering with niceties like kissing, I dropped straight to my knees and hurriedly unzipped his pants and took out his swelling cock.
+
+He leaned back with a dumb grin on his face.
+
+I took the head of his cock in my mouth and quickly got it slobberingly wet. I didn't look up at him while I sucked him in as deep as I could. I only used my mouth because at the same time I was slipping my panties down under the blue A-line dress I had wore to work that day.
+
+With my panties down to my knees, I kept sliding my lips up and down my husband's cock while I fingered my pussy with one hand. With my free hand I groped blindly in the bedside drawer for my vibrator. It was a smallish and light-blue. The silicon type, with a nice little curve at the end. I desperately got it turned on and between my legs. With a groan stifled by Mark's cock, I pressed this quakey little pleasure up against my clit. This finally gave me a free hand to grab Mark's cock at the base. I started stroking him from the bottom, and continuing the stroke up the shaft with my lips right to the tip --- before plunging back down to almost gag-depth.
+
+Now, I like to use my vibrator when I give my husband a blow job. It's a regular part of our lovemaking. I like to cum with his cock in my mouth, preferably at the same time he floods my mouth. But normally, I just rub it a bit against my clit. That's all it takes to make me cum when I've got his lovely, comforting cock in my mouth.
+
+But on this occasion, I subtly twisted that little vibe around, and slipped it up inside my pussy. I closed my eyes, and suddenly I wasn't just sucking off my husband, I was getting fucked by Owen from behind as well. The two men were fucking me from each end. I was turning slowly on a stick over a steaming fire.
+
+Owen pushed into me from behind, and his thrust drove me down my husband's cock until I was lightly choking. I pushed back hard against Owen, and he retreated. My pussy liquefied and melted, hot gobs of fat dripping off and burting into bright shooting-star flames on their way down, to be consumed before they hit the smoldering earth.
+
+I came.
+
+My pussy clenched around my vibrator which was Owen's cock. I rolled my hips forward involuntarily. The motion of it forced by whole body forward and I went down hard on Mark's cock. He came at then too. I felt myself explode, and liquid gushed out all over my fingers and soaked the inside of my thighs. At the same time Mark's cum washed down my throat, like the liquid was coming into a retention pond and raising the level until it poured over the retaining wall.
+
+And I knew if Owen had really been in my pussy, he too would have been orgasming at that same moment. No man would be able to resist that rolling, clenching, gushing little cauldron.
+
+--------------------
+
+The next morning, the first thing I did when I woke up was text Owen again:
+
+Me: Done. 💦💦
+
+The following day, the small envelope I was craving arrived, with two crisp, new $100 bills in it this time. They were wrapped in another note upping the ante once again:
+
+_Athena. I appreciate all the fine work you are doing for me. That is why I am giving you yet more responsibility. Make yourself orgasm while thinking of me fucking you in the ass, and I will pay you $300. Owen._
+
+By this time, I was completely lost in the churning machine that was Owen's mind. That evening during my alone time, I got my trusty little vibrator out, and turned it to it's highest setting. I lubed it, and slid it slowly up my ass. And then I lay face down on the bed, with my little friend buzzing deep inside me. I fingered my pussy and thought about Owen being over me, his cock filling me up. Making me feel so completely full of him.
+
+I came biting my pillow and stifling my moans while my body writhed uncontrollably against the cotton quilt of the bedspread.
+
+And as if Owen's machine made one more revolution, the next morning I texted him again:
+
+Me: 🍑 Done. 
+
+And then I went into work.
+
+But at work, I again spent the day distracted. And this time, it was not by random things, but by very specific, very dirty thoughts about the man Owen himself. I couldn't keep him out of my mind. I realized I needed to fuck him for real.
+
+Late in the afternoon, I texted him:
+
+Me: I think I need to see you tonight. Is that possible?
+
+Owen: Surely. Meet me at that same place we had dinner with Holly. Around 8?
+
+Me: Thank you. I mean it.
+
+I then texted some totally thin excuse for why I would be home late to my husband.
+
+I got out of work with plenty of time to make it to the restaurant. At 8pm had been sitting at the bar for about an hour, nursing a cocktail and trying to look sexy, but not too eager. Owen came in promptly at 8pm --- he was a gentleman, not a rock star. He was not going to make his fans wait for it with some lame notion of building anticipation. On the other hand, he didn't look rushed either. He stepped into the restaurant and casually checked his phone for a few minutes before looking up and catching my eye.
+
+He smiled that toothy smile of his and came over and sat down next to me, brushing his leg against mine as he slipped into the narrow gap between bar stools. He looked better than I remembered, possibly because he was dressed in a dark finely-cut suit this time. Though it was also possible I had simply forgotten how attractive he was. Remember: I only met this guy once before and haven't seen or spoken to him in more than a week.
+
+"Athena. I honestly did not expect to see you again. Even with our little game."
+
+"Little game? You mean your devious and calculated plan?"
+
+"Do I need to ask for your forgiveness?"
+
+"What I need from you is a release."
+
+"Oh really?"
+
+"I mean a release from this contract, or whatever you want to call it. I can't hold up my end anymore. It's interfering with my life."
+
+"Ha. Forgive me for that. But a contract is a two-way thing. You could end it any time you want."
+
+"Really... I can't." I lifted my eyes to his at that moment and those razor eyes of his were already seeking mine. I gave up at that moment.
+
+Twenty minutes later we had abandoned half-finished drinks at the bar, and gotten a room in the hotel above the restaurant. I pushed him quickly into the room, and started stripping his suit off him; pulling the jacket back by the sleeves, loosening his tie, unbuttoning his shirt. All this the interstitial action between long sloppy wet kisses.
+
+The room was high up, maybe 10 stories. It had those big floor-to-ceiling windows that seem to be mandatory in luxury hotel rooms. It looked out on a lovely view of the other buildings between there and the river. We left the lights on. Anyone in any of those office buildings or residential towers would be able to see us.
+
+I pushed him back on the bed and got on top of him. I kissed him for a while, and then leaned back and rolled my hips, grinding my pussy against the bulge in his pants.
+
+But... something wasn't quite right. I wasn't as turned on as I thought I would be. For a moment I thought maybe it was that sense of wrongness of cheating on my husband that was mentally getting in the way of what my body wanted. But I took a moment to think about that and decided no, that wasn't it. I had put that aside a week ago.
+
+I slowed my grinding down, breathing heavily.
+
+Owen look up at me. "What's wrong?"
+
+"I'm... not sure."
+
+I slowly got off him, and lowered my self to my knees on the edge of the bed. I unzipped his pants and look out his long lovely soft-skinned, hard-souled cock. I put my lips on it, and started to suck him gently. I put on hand down my panties. I was hardly wet at all.
+
+I lifted my head, stroking his big cock with my little hand slowly while I looked at him with a sigh escaping.
+
+"What? What is it? Do you feel guilty or something?"
+
+I closed my eyes, and searched my feelings.
+
+Fuck.
+
+"Fuck. I do know what it is."
+
+"What?"
+
+"Before I get turned on, before I get wet for you, I need to know you are going to fucking pay me. You motherfucker. You totally made me your fucking whore!"
 
 
 
