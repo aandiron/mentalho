@@ -1,7 +1,7 @@
 README.md
-Last modified: Thu Aug 26, 2021  04:21PM
+Last modified: Sat Aug 28, 2021  01:47AM
 
-# Some Story Title
+# How to Make a Whore
 * By A. Andiron
 
 ## How to read it:
@@ -14,6 +14,7 @@ Last modified: Thu Aug 26, 2021  04:21PM
 
 ## Compilation notes:
 * Use pandoc to compile .md into whatever format you like.
+* The .md version is formatted to read nicely as a text file. The for Literotica .txt version has single-line paragraphs and emdash character emdashes.
 
 ## License:
 * Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International
