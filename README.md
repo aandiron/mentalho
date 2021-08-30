@@ -1,14 +1,14 @@
 README.md
-Last modified: Sat Aug 28, 2021  01:47AM
+Last modified: Mon Aug 30, 2021  02:57PM
 
 # How to Make a Whore
 * By A. Andiron
 
 ## How to read it:
 * Available to read on Literotica:
-	* {url}
+	* https://www.literotica.com/s/how-to-make-a-whore
 * And on Medium:
-	* 
+	* https://medium.com/@a.andiron/how-to-make-a-whore-41d05376941
 * Or, compile from this source code using latex.
 	* (Or just read the markdown, available in source.) 
 

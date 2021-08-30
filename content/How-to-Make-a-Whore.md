@@ -1,10 +1,10 @@
 rough-first-draft_mentalho.md
-Last modified: Sat Aug 28, 2021  01:44AM
+Last modified: Mon Aug 30, 2021  02:57PM
 
 
 # How to Make a Whore
 
-"Excuse me you two, it's time for me to spend a moment in the WC." my
+"Excuse me you two, it's time for me to spend a moment in the WC." My
 old friend Holly said, rising from the table with its white tablecloth
 crumb-covered and splatter-painted with the minuscule remains of the
 meal we had just enjoyed.
