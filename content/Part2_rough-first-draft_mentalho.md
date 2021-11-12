@@ -1,5 +1,5 @@
 Part2_rough-first-draft_mentalho.md
-Last modified: Thu Nov 11, 2021  02:51PM
+Last modified: Fri Nov 12, 2021  01:32PM
 
 
 # How To Make a Whore, Part 2
@@ -94,7 +94,9 @@ He sighed, only half-jokingly, and withdrew 5 more bills from his wallet. Seeing
 
 He handed me the bills, and I put them into the pile in my fist. With my other hand I undid his slacks and unthreaded his long cock from them. I stroked it a bit with my warm little hand and then turned back to the window.
 
-I leaned over and looked back at him again. "Come fuck me. Fuck me right in front of this huge city where anyone might see us."
+I leaned over and looked back at him again. "Come fuck me. Fuck me right in the view of this huge city where anyone might see us."
 
+He stepped up behind me, led by his long cock. He put his hands on the backs of my legs, and his palms came up; under the lower curve of my ass, over my ass, finally to rest on the curve of my hips that he now used as grip points on my body. His strong arms and hands held me firmly in place while his cock head found my pussy and pushed into me.
 
+He fucked me like that, with me leaning over in front of the window. But he fucked me harder and harder. I guess he wanted to make sure he was getting his money's worth. He thrust into me, and pulled me irresistibly back onto his cock, but he was also steadily driving my body forward. Soon he had closed the distance to the glass, and he had me pressed up against the window. My tits were flattened against the glass, and he was close in behind me, grinding me between his hard body and the window. I was also aware that he was pressing my naked self up against this window --- a picture for the world to see.
 
