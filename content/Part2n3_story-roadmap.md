@@ -1,5 +1,5 @@
 Part2n3_story-roadmap.md
-Last modified: Sat Oct 23, 2021  12:34PM
+Last modified: Sun Nov 14, 2021  09:25PM
 
 # How to make a whore --- story roadmap for Parts 2 and 3
 
@@ -50,6 +50,7 @@ In the 3rd chapter, she is sleeping with some high-powered finance bro _just_
 to get an illegal stock tip. And then maybe it ends with her masturbating while
 watching her illicit stock portfolio climb and climb.
 * Banker friend of the old guy from the threesome? Younger though maybe? Who cares.
+* See notes from Turbo 2021-11-14 21:25:12 -- maybe a reconciliation with her husband, bring in the menu?
 
 
 
